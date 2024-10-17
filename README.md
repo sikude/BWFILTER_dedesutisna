@@ -1,1 +1,0 @@
-# BWFILTER_dedesutisna
